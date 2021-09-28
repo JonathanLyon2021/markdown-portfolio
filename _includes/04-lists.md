@@ -1,0 +1,11 @@
+# Here is a list of my favorite things:
+- Jesus Christ
+- Hockey
+- Pontiac Fiero's 
+- Engine Building & Welding
+- Psycology
+- Carribean Beaches
+- 4 wheeling 
+- Jet skiing
+- Coding 
+- Blockchain
